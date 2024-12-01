@@ -1,2 +1,2 @@
 # education1
-education code are there.
+https://shaylasharmin123.github.io/education1/
